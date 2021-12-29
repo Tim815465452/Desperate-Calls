@@ -17,3 +17,9 @@ Most of all, after the MECT mentioned before, I couldn't feel any resonance from
 
 
 06-08-2021
+
+
+我自己都沒心思去認真看之前寫的東西，為甚麼還期待有別人來看。
+最近用英文越來越少或許也是因為沒有那個水平了吧，寫東西也越來越困難了
+
+29-12-21
